@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @dalcini
-- 👀 I’m interested in understnad software better
+- 👀 I’m interested in understand software better
 - 🌱 I’m currently learning the basics
 - 💞️ I’m looking to collaborate on learning together
-- 📫 How to reach me leave me text! im open to conversation :)
+- 📫 How to reach me: leave me text! im open to conversation :)
 - 😄 Pronouns: all pronouns
 - ⚡ Fun fact: ...
 
